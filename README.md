@@ -1,4 +1,4 @@
-## Hi, I'm Simon Teuwens and welcome to my Github page!
+## Hi, I'm Simon Teuwens!
 
 I studied Applied Linguistics and, more recently, finished my degree in Computer Science.
 My hobbies are quite varied, I enjoy playing basketball, drums, guitar as well as gaming and playing chess.
